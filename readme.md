@@ -1,3 +1,3 @@
 # HG Website
 
-https://mercurywork.shop
+https://percurymerc.shop
