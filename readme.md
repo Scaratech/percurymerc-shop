@@ -1,2 +1,2 @@
 # How do I join
-nuh
+if you know me you can request to be added ^-^
